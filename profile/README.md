@@ -19,7 +19,7 @@ The Sims 4 Complete DLC Unlocker for macOS is the ultimate gateway to endless cr
 
 Designed specifically for Mac users (including M1/M2 chips), this solution bypasses EA's paywalls while preserving your existing saves and mods. Experience all 12 expansion worlds, supernatural powers from Realm of Magic, the university journey from Discover University, and thousands of build/buy items - all seamlessly integrated into your game as if officially purchased.  
 
-The unlocker works magically in the background without modifying original game files or requiring additional launchers. It's perfect for storytellers who want complete creative freedom, builders craving all architectural items, and players who wish to explore every gameplay feature EA has developed since 2014.  
+The unlocker works magically in the background without modifying original game files or requiring additional launchers. It's perfect for storytellers who want complete creative freedom, builders craving all architectural items, and players who wish to explore every gameplay feature EA has developed.  
 
 ![The Sims 4 DLC Worlds](https://media.karousell.com/media/photos/products/2021/6/29/origin__steam_the_sims_4_all_d_1624951234_56603abf_progressive.jpg)
 
